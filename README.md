@@ -30,7 +30,7 @@
 
 ## 🎩 **Places to Find Me (or Not)**  
 
-🏴‍☠️ **GitHub**: VoidMonarch  
+🏴‍☠️ **GitHub**: TheVoidMonarch  
 🌐 **Website**: The Fool’s Tattered Notebook  
 🃏 **Somewhere between a mistake and a miracle**  
 
